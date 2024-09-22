@@ -1,0 +1,1 @@
+- 👋 O suas piranha, se tentar abrir minhas src. Te faço uma macumba das braba.
